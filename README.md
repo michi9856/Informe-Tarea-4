@@ -34,6 +34,14 @@ Específicos:
 
 # 2.MARCO TEÓRICO
 
+![Untitled (9)](https://user-images.githubusercontent.com/116761073/207740415-4364ec82-1853-4a67-bd15-12114940a281.jpg)
+
+![Untitled (10)](https://user-images.githubusercontent.com/116761073/207740520-c0469407-c2c2-40bf-b1ae-e54ffb0e7e7d.jpg)
+
+![Untitled (11)](https://user-images.githubusercontent.com/116761073/207740588-1d6a736b-3b16-47c4-b795-4ae126220c8f.jpg)
+
+
+
 CAPÍTULO 7
 # 3. RESOLUCIÓN DE EJERCICIOS
 # 4. VIDEO
